@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-I want to study Architecture
-8500+ Trophies
+- I want to study Architecture
+- 8500+ Trophies
 
 
 <!--
