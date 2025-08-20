@@ -1,6 +1,8 @@
 ## Hi there 👋
 
-work in progress
+I want to study Architecture
+8500+ Trophies
+
 
 <!--
 **itsoscar0413/itsoscar0413** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
