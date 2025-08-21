@@ -1,7 +1,9 @@
-## Hi there 👋
+## Hi there, my names Oscar 👋
 
-- I want to study Architecture
-- 8500+ Trophies
+- I want to study Architecture 🏢
+- I like parrots 💀
+- 8500+ Trophies 🏆
+- Xbow is no skill. 🤬
 
 <img width="292" height="282" alt="image" src="https://github.com/user-attachments/assets/ac0468a7-75cc-4366-b9e4-4d8376c110f1" />
 
